@@ -29,4 +29,6 @@ Now , Here you will get different options like :
 
 ## So go and explore my chat room :----
 
+For any queries E-mail me on = kkg060443@gmail.com
+
 #THANK YOU !!!
